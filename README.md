@@ -1,1 +1,0 @@
-# NVIDIA-AI-AND-MI-intership-2026
